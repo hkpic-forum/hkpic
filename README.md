@@ -1,10 +1,10 @@
-比思最新域名
-http://bi-si11.xyz
-http://bi-si999.xyz
-http://bi-si888.xyz
-http://bccard.xyz
-http://cdn.bccard.xyz
-http://108.170.10.234
+比思最新域名<br>
+http://bi-si11.xyz<br>
+http://bi-si999.xyz<br>
+http://bi-si888.xyz<br>
+http://bccard.xyz<br><br>
+http://cdn.bccard.xyz<br>
+http://108.170.10.234<br>
 
 比思永久域名
 http://hkpic.net
