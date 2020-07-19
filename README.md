@@ -18,8 +18,9 @@ http://hkbisi.com(請收藏好，自動跳到新域名)<br>
 http://hkwesi1111.xyz<br>
 http://hkwesi2222.xyz<br>
 http://hkwesi6666.xyz<br>
-http://hkwesi111.xyz<br>
-http://hkwesi222.xyz<br>
+http://hkwesi11111.xyz<br>
+http://hkwesi22222.xyz<br>
+http://hkwesi66666.xyz<br>
 <br>
 <br>
 唯思永久域名<br>
