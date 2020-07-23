@@ -3,7 +3,6 @@ http://bi-si11.xyz<br>
 http://bi-si999.xyz<br>
 http://bi-si888.xyz<br>
 http://bscdn.xyz<br>
-http://cdn.bscdn.xyz<br>
 http://108.170.10.234<br>
 <br>
 比思永久域名<br>
