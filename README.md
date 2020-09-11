@@ -22,6 +22,9 @@ http://hkwesi6666.xyz<br>
 http://hkwesi11111.xyz<br>
 http://hkwesi22222.xyz<br>
 http://hkwesi66666.xyz<br>
+http://cdn.hkwesi11111.xyz<br>
+http://cdn.hkwesi22222.xyz<br>
+http://cdnhkwesi66666.xyz<br>
 <br>
 <br>
 唯思永久域名<br>
