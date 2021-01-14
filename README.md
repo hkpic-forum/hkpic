@@ -22,9 +22,6 @@ http://cdn.hk-wesi.xyz<br>
 http://cdn.hk-wesi1.xyz<br>
 http://cdn.hk-wesi2.xyz<br>
 http://cdn.hk-wesi3.xyz<br>
-http://cdn.hkwesi11111.xyz<br>
-http://cdn.hkwesi22222.xyz<br>
-http://cdn.hkwesi66666.xyz<br>
 <br>
 <br>
 唯思永久域名<br>
