@@ -4,6 +4,7 @@ http://cdn.bscdn.xyz<br>
 http://bscdn.xyz<br>
 http://bs-cdn.xyz<br>
 http://108.170.10.234<br>
+http://108.170.9.197<br>
 <br>
 比思永久域名<br>
 http://hkpic.net<br>
