@@ -6,6 +6,7 @@ http://bscdn.xyz<br>
 http://bs-cdn.xyz<br>
 http://108.170.5.75<br>
 http://108.170.5.99<br>
+http://184.95.51.83:8080<br>
 http://108.170.5.74:8080<br>
 http://108.170.5.98:8080<br>
 <br>
