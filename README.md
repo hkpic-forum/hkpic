@@ -23,7 +23,10 @@ http://hk-wesi.xyz<br>
 http://hk-wesi1.xyz<br>
 http://hk-wesi2.xyz<br>
 http://hk-wesi3.xyz<br>
+http://cdn.hk-wesi.xyz<br>
 http://cdn.hk-wesi1.xyz<br>
+http://cdn.hk-wesi2.xyz<br>
+http://cdn.hk-wesi3.xyz<br>
 
 <br>
 <br>
