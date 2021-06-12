@@ -2,8 +2,7 @@
 http://bisi666.xyz<br>
 http://bisi777.cc<br>
 http://bisi666.cc<br>
-http://cdn.bscdn.xyz<br>
-http://bscdn.xyz<br>
+http://bisicdn.cc<br>
 http://bs-cdn.xyz<br>
 http://108.170.5.75<br>
 http://108.170.5.99<br>
