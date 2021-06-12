@@ -1,6 +1,7 @@
 比思最新域名<br>
 http://bisi666.xyz<br>
-http://bisi777.xyz<br>
+http://bisi777.cc<br>
+http://bisi666.cc<br>
 http://cdn.bscdn.xyz<br>
 http://bscdn.xyz<br>
 http://bs-cdn.xyz<br>
