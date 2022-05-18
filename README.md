@@ -18,22 +18,15 @@ http://hkbisi.com<br>
 <br>
 <br>
 唯思最新域名<br>
-http://hk-wesi.xyz<br>
-http://hk-wesi1.xyz<br>
-http://hk-wesi2.xyz<br>
-http://hk-wesi3.xyz<br>
-http://cdn.hk-wesi.xyz<br>
-http://cdn.hk-wesi1.xyz<br>
-http://cdn.hk-wesi2.xyz<br>
-http://cdn.hk-wesi3.xyz<br>
+
 http://we-cc.xyz<br>
-http://we-cc1.xyz<br>
-http://we-cc2.xyz<br>
-http://we-cc3.xyz<br>
+http://we-cc4.xyz<br>
+http://we-cc5.xyz<br>
+http://we-cc6.xyz<br>
 http://cdn.we-cc.xyz<br>
-http://cdn.we-cc1.xyz<br>
-http://cdn.we-cc2.xyz<br>
-http://cdn.we-cc3.xyz<br>
+http://cdn.we-cc4.xyz<br>
+http://cdn.we-cc5.xyz<br>
+http://cdn.we-cc6.xyz<br>
 
 
 <br>
