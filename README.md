@@ -25,6 +25,7 @@ http://ww-cc.xyz<br>
 http://ww-cc1.xyz<br>
 http://ww-cc2.xyz<br>
 http://ww-cc4.xyz<br>
+http://cdn.ww-cc.xyz<br>
 
 http://we-cc6.xyz<br>
 http://we-cc7.xyz<br>
