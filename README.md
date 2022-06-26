@@ -20,10 +20,14 @@ http://hkbisi.com<br>
 唯思最新域名<br>
 
 
-http://we-cc5.xyz<br>
+
+http://ww-cc.xyz<br>
+http://ww-cc1.xyz<br>
+http://ww-cc2.xyz<br>
+http://ww-cc4.xyz<br>
+
 http://we-cc6.xyz<br>
 http://we-cc7.xyz<br>
-http://cdn.we-cc5.xyz<br>
 http://cdn.we-cc6.xyz<br>
 http://cdn.we-cc7.xyz<br>
 
