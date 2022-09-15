@@ -1,5 +1,5 @@
 比思最新域名<br>
-http://bb-cc.xyz<br>
+http://bc-bc.xyz<br>
 http://bisi666.cc<br>
 http://bisicdn.cc<br>
 http://bs-cdn.xyz<br>
