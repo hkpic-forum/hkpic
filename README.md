@@ -22,19 +22,19 @@ http://hkbisi.com<br>
 
 http://we-see.xyz<br>
 http://bw.we-see.xyz<br>
-http://kt.we-see.xyz<br>
+http://kts.we-see.xyz<br>
 http://ps.we-see.xyz<br>
 
 
 http://we-see1.xyz<br>
 http://bw.we-see1.xyz<br>
-http://kt.we-see1.xyz<br>
+http://kts.we-see1.xyz<br>
 http://ps.we-see1.xyz<br>
 
 
 http://we-see2.xyz<br>
 http://bw.we-see2.xyz<br>
-http://kt.we-see2.xyz<br>
+http://kts.we-see2.xyz<br>
 http://ps.we-see2.xyz<br>
 
 
