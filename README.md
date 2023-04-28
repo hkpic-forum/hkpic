@@ -1,5 +1,6 @@
 比思最新域名<br>
-http://bc-bc.xyz<br>
+http://bc-bc.online<br>
+http://bc-bc.site<br>
 http://bisi666.cc<br>
 http://bbcdn.online<br>
 http://108.170.5.75<br>
