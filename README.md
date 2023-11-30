@@ -1,8 +1,7 @@
 比思最新域名<br>
-http://bc-bc.online<br>
-http://bc-bc.site<br>
-http://bisi666.cc<br>
-http://bbcdn.online<br>
+http://bb-cc.online<br>
+http://bb-cc.site<br>
+http://bb-cdn.online<br>
 http://108.170.5.75<br>
 http://108.170.5.99<br>
 http://184.95.51.83:8080<br>
