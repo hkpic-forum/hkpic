@@ -1,7 +1,7 @@
 比思最新域名<br>
-http://bb-cc.store<br>
-http://bb-cc.site<br>
-http://bb-cdn.store<br>
+http://bbb-ccc.store<br>
+http://bbb-ccc.top<br>
+http://bb-cdn.top<br>
 http://108.170.5.99:8080<br>
 http://184.95.51.83:8080<br>
 http://108.170.5.74:8080<br>
