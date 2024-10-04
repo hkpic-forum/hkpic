@@ -5,7 +5,7 @@ http://bb-cdn.shop<br>
 http://108.170.5.99:8181<br>
 http://108.170.5.99:8080<br>
 http://184.95.51.83:8080<br>
-http://108.170.5.74:8080<br>
+
 <br>
 比思永久域名<br>
 http://hkpic.net<br>
