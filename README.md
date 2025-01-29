@@ -1,12 +1,11 @@
 比思最新域名<br>
 http://bbb-ccc.club<br>
-http://bbb-ccc.live<br>
-http://bb-cdn.live<br>
-http://108.170.5.74:8080<br>
-http://108.170.5.75:8383<br>
-http://108.170.5.99:8181<br>
-http://108.170.5.99:8080<br>
+http://bbcom.site<br>
+http://bisipic.site<br>
 http://184.95.51.83:8080<br>
+http://108.170.5.76<br>
+
+
 
 <br>
 比思永久域名<br>
