@@ -1,9 +1,9 @@
 比思最新域名<br>
+http://bs111111.online<br>
+http://bb-cdn.life<br>
 http://bbb-ccc.club<br>
-http://bbcom.site<br>
 http://bisipic.site<br>
-http://184.95.51.83:8080<br>
-http://108.170.5.76<br>
+http://hkpics.xyz<br>
 
 
 
