@@ -6,6 +6,7 @@ http://bbb-ccc.club<br>
 http://bisipic.site<br>
 http://hkpics.xyz<br>
 http://45.86.208.234:8080<br>
+http://45.86.208.229:8080<br>
 <br>
 
 比思後備論壇域名 <br>
