@@ -5,6 +5,8 @@ http://bs111111.site<br>
 http://bbb-ccc.club<br>
 http://bisipic.site<br>
 http://hkpics.xyz<br>
+http://bb-hkpic.xyz<br>
+http://bb-hkpic.site<br>
 http://45.86.208.234:8080<br>
 http://45.86.208.229:8080<br>
 <br>
