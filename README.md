@@ -1,8 +1,8 @@
 比思最新域名<br>
 
-http://hkcdn1.site<br>
-http://hkcdn1.store<br>
-http://hkcdn1.shop<br>
+http://hkcdn2.site<br>
+http://hkcdn2.store<br>
+http://hkcdn2.shop<br>
 http://45.86.208.234:8080<br>
 http://45.86.208.229:8080<br>
 <br>
