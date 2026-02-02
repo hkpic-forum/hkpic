@@ -1,5 +1,7 @@
 比思最新域名<br>
-
+http://hkcdn.monster<br>
+http://hkcdn1.monster<br>
+http://hkcdn2.monster<br>
 http://hkcdn2.site<br>
 http://hkcdn2.store<br>
 http://hkcdn2.shop<br>
