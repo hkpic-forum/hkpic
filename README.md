@@ -1,4 +1,5 @@
 比思最新域名<br>
+http://hkcdn.monster<br>(最新名都不行，嘗試這個)
 http://hkcdn.monster<br>
 http://hkcdn1.monster<br>
 http://hkcdn2.monster<br>
