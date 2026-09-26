@@ -1,13 +1,9 @@
 比思最新域名<br>
-http://hkcdn4.space (最新域名，如果以下都不行，嘗試這個)<br>
-http://hkcdn.monster<br>
-http://hkcdn1.monster<br>
-http://hkcdn2.monster<br>
-http://hkcdn2.site<br>
-http://hkcdn2.store<br>
-http://hkcdn2.shop<br>
-http://45.86.208.234:8080<br>
+http://hkcdn7.space (最新域名，如果以下都不行，嘗試這個)<br>
+http://hkcdn5.space<br>
+http://hkcdn6.space<br>
 http://45.86.208.229:8080<br>
+http://45.86.208.234:8080<br>
 <br>
 
 比思後備論壇域名 <br>
